@@ -6,6 +6,8 @@
 
 🔮 Over a decade of passion and involvement in blockchain technology and online content creation.
 
-🎸 Working with customer success over at Gateway.fm.
+🎸 Working with customer success over at [Gateway.fm](https://gateway.fm).
 
 🤹🏻 Building trust and driving growth is my sweet spot.
+
+📺 [YouTube](https://www.youtube.com/@sanjindumisic) | 💬 [LinkedIn](https://www.linkedin.com/in/sanjindumisic)
