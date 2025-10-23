@@ -1,6 +1,6 @@
 ### Greetings! 👋🏻
 
-🧡 Head of Marketing for Swedish Bitcoin company BTCX.
+🧡 CMO for the Swedish Bitcoin company BTCX.
 
 🪄 codebatine is my coding journey. Sometimes i beat the code, sometimes it beats me. Yet we evolve together.
 
